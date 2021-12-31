@@ -1,1 +1,1 @@
-# GauBoSs12.github.io
+# GauBoSs12.com
